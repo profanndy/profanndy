@@ -7,7 +7,7 @@
 - ## Qualquer duvida , Você pode entrar em contato comigo em meu email ou pelo o instagram 📫
  andersonsantoss@prof.educacao.sp.gov.br
  
-   @profanndysilva-Instagram
+   @profanndysilva -Insta
 
    ![](https://media1.tenor.com/m/Z0_XOgJk9X8AAAAd/love-deadpool.gif)
    
